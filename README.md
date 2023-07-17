@@ -1,7 +1,1 @@
-# WHOAMI
 
-# Projects
-
-# Skills
-
-# Experience
